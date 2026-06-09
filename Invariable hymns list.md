@@ -14,10 +14,9 @@
 012 It is truly meet to bless Thee
 013 Our Father (Lords_Prayer)
 014 One is Holy One is Lord
---015 Blessed is He that Cometh in the name of the Lord..
+015 Blessed is He that Cometh in the name of the Lord..
 016 Recive the Body of Christ
--017 We have seen the True Light..
---018 Let our mouth be filled with Thy praise O Lord ...
+017 018 We have seen the True Light..Let our mouth be filled with Thy praise O Lord
 019 Blessed be the name of the Lord henceforh and for evermore
 020 Psalm 33
 021 Liturgy Dismissal (Glory to the Father and to the Son and to the Holy spirit both now and ever)
